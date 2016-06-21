@@ -1,7 +1,8 @@
 ## Denver
 
 #### Restaurants
-- Breckenrige Brewery Farmhouse
+- Breckenridge Brewery Farmhouse
+
 
 
 #### Things to do
